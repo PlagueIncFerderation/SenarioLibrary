@@ -1,1 +1,8 @@
-谨防苯酚贴贴、白老师贴贴、耐久贴贴、水水贴贴、馊王贴贴、桃酥贴贴、乙烯贴贴、猫猫贴贴、茶籽贴贴、🦀️贴贴、仿冒fku及联邦人员的网络骗局，如有场景往来请谨慎操作。
+Bury the light deep within!
+埋葬内心深处的光明
+Cast aside, there's no coming home!
+抛却一切吧，我们已无家可归
+We're burning chaos in the wind!
+在风中燃烧着混沌
+Drifting in the ocean all alone!
+孤独漂浮在无尽的海洋！  
